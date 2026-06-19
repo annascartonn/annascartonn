@@ -19,3 +19,6 @@ Qualquer dúvida entre em contato
 ![](https://media.tenor.com/Fn-_YjsGaQIAAAAC/hopem-hopem-story.gif)
 ![](https://media.tenor.com/xhp5iFrcEssAAAAC/eating-banana-courage.gif)
 ![](https://media.tenor.com/GQAsycjoZG8AAAAi/scuba-scuba-cat.gif)
+![](https://media.tenor.com/biB4OIcEhDcAAAAi/playing-guitar-cat.gif)
+![](https://media.tenor.com/dabUhljTbeYAAAAi/timpoulton-turntable.gif)
+![](
